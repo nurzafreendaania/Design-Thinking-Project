@@ -1,1 +1,1 @@
-# Design-Thinking-Project
+# Design Thinking Project
